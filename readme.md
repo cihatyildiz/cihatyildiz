@@ -6,4 +6,4 @@ Hi There!
 - If you want to reach me please use:
   - LinkedIn: https://www.linkedin.com/in/cihatyildiz/
   - Twitter: https://twitter.com/cihatix?lang=en
-  - Blog: https://www.cihat.yildiz.com
+  - Blog: https://www.cihatyildiz.com
